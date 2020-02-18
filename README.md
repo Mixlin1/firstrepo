@@ -6,8 +6,9 @@ Meine Nickname: Danilka228UltrakillRampageSkillNumberone
 Ich spiele viele Spielen. Genauer ist Shooter, Sandbox, RPG. Manchmal kann im MoBO spielen.
 Ich speedrunen einige Spielen. Z.b Karlson, Minecraft, CS:GO, Digger Online und Overdro4.
 
-В пизду немецкий. Крч, расскажу о всякой хуйне
+В пизду мой корявый немецкий.
 ===
+
 Ну, как и сказал ранее - я пытался спидранить некоторые игры: Karlson, Майнкрафт(Как соло, так и по сетевой игре), Dishonored,а больше вспомнить не могу. 
 
 ---

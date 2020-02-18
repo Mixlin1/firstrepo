@@ -26,4 +26,4 @@ Ich speedrunen einige Spielen. Z.b Karlson, Minecraft, CS:GO, Digger Online und 
 
 Ну и конечно же повыёбываться мировыми ~~личными~~ рекордами не забыть.
 ===
-[*Вот тут подробная информация о моих попытках спидранить С:*](https://github.com/Mixlin1/firstrepo/blob/master/1.md)
+Вот тут подробная информация о моих попытках спидранить С: [*клик*](https://github.com/Mixlin1/firstrepo/blob/master/1.md)
